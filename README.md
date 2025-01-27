@@ -2,7 +2,7 @@
 - 👀 I’m interested in AI, apps development, and anime👀
 - 🌱 I’m currently learning .net maui
 - 💞️ I’m looking to collaborate on studing and making fun
-- 📫 How to reach me (on whatsAP: +963992867235)
+- 📫 How to reach me (on whatsAPP: +963992867235)
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
